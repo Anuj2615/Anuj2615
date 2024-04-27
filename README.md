@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Anuj2615
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning BCA
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me kusha2614anuj@gmail.com
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
